@@ -1,2 +1,0 @@
-# rumihotel
-hz
